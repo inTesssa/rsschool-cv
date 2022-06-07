@@ -12,8 +12,10 @@
   
   **Mobile** +37529 648 93 51
   ****
-  **About Myself in Short**
-  ***
+  
+**About Myself in Short**
+  ****
+  
 **Education**
     
 - Minsk State Linguistic University. Faculty of Retraining with the main field of study ‘Modern Foreign Languages
